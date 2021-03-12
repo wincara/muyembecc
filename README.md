@@ -1,2 +1,0 @@
-# muyembecc
-muyembe community church
